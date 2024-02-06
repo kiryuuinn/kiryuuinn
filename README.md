@@ -1,1 +1,3 @@
-![zero-two](https://github.com/kiryuuinn/kiryuuinn/assets/104529534/38e35711-4681-473d-9043-a9f0debaa6d4)
+<div align="center">
+  <img align="center" src="https://gifdb.com/images/high/procrastinating-zero-two-ajoa9vdhfhh60oes.gif">
+</div>
